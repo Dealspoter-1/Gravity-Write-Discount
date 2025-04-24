@@ -1,4 +1,4 @@
-# Gravity Write Discount Codes | 70% OFF 2025 
+# Gravity Write Discount Codes | 70% OFF 2025
 **Unlock Amazing Savings with GravityWrite AI Promo Codes: A Simple Guide for Everyone!**  
 
 🌟 **Heading 1: What is GravityWrite AI?**  
